@@ -1,1 +1,0 @@
-# parceria.github.io
